@@ -13,3 +13,5 @@ Here are some of my favourite shows
 -money heist
 
 Thanks for reading this readme!!
+
+[Here is my linkedin](www.linkedin.com/in/mithrajit-kathir-406745301)
